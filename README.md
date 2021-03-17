@@ -9,3 +9,6 @@ https://halocantik.net/galvanic-spa/
 https://halocantik.net/galvanic-spa/
 
 https://halocantik.net/galvanic-spa/
+
+https://halocantik.net/lumispa/
+
